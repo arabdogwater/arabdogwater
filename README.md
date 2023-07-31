@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @arabdogwater
 - 👀 I’m interested in adult films
-- 🌱 I’m currently learning LUA
+- 🌱 I’m currently learning LUA,PHP,PYTHON
 - 💞️ I’m looking to collaborate on adult films
 - 📫 How to reach me pornhub.com
 
